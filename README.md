@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @rewstech
+- 👀 I’m interested in crypto
+- crypto miner
+- nicehash
+- minestat
